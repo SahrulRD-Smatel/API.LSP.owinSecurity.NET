@@ -2,6 +2,7 @@
 
 
 <p align="left"> <a href="https://twitter.com/_zethya_sahrul_" target="blank"><img src="https://img.shields.io/twitter/follow/_zethya_sahrul_?logo=twitter&style=for-the-badge" alt="_zethya_sahrul_" /></a> </p>
+<p><a href="https://www.buymeacoffee.com/https://www.buymeacoffee.com/dhaniдхани"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="https://www.buymeacoffee.com/dhaniдхани" /></a></p><br><br>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
